@@ -1,2 +1,1 @@
-# lambisgoio
-lambisgoiar
+CURRÌCULO
